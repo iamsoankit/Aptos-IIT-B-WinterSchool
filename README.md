@@ -1,1 +1,0 @@
-# Aptos-IIT-B-WinterSchool
